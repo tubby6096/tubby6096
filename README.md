@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @tubby6096
+- 👀...
+- 🌱 I’m currently learning Javascript
+- 📫 How to reach me ...You pray to me lmfao

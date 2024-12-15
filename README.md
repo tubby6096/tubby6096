@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @tubby6096
 - 👀...
-- 🌱 I’m currently learning Javascript
+- 🌱 burn the forest and replant it
 - 📫 How to reach me ...You pray to me lmfao
